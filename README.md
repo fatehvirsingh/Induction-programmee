@@ -30,6 +30,12 @@ After returning from the Gurdwara, we were offered a warm welcome with **refresh
 - HOD of Applied Sciences  
 - Encouraged students to approach their first year as a foundation-building phase  
 - Spoke on bridging the gap between school and engineering academics
+- #### **Mr. Maheshinder Singh Garewal**
+- He delivered a very inspiring speech where he talked about the NSET Trust of GNDEC College.  
+He shared personal life examples to explain how to build confidence.  
+He also emphasized the importance of personality development.  
+His words motivated us to believe in ourselves and keep improving continuously.  
+After the speech, he was honored by the college as a token of appreciation.
 
 #### **From 1:30 PM to 3:30 PM**
 we were given a tour of the Electrical Engineering Department. During this time, we visited various laboratories and were introduced to the faculty members. It was an insightful session that helped us understand the department's facilities and interact with the teachers.
