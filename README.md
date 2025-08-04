@@ -2,6 +2,6 @@
 Fatehvir Singh
 Electrical Engineering 
 # DAY 1 
-## (30-07-2025)
+###(30-07-2025)
 
 
