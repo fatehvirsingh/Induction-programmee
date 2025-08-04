@@ -1,2 +1,7 @@
 # Induction-programme
-Fatehvir Singh ELECRICAL ENGINEERING 
+Fatehvir Singh
+lectrical Engineering 
+# DAY 1 
+## (30-07-2025)
+
+
