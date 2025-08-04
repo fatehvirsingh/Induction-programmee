@@ -23,13 +23,18 @@ After returning from the Gurdwara, we were offered a warm welcome with **refresh
 - Welcomed students and introduced the **legacy, vision, and values** of GNDEC.  
 - Talked about the institute’s **academic excellence**, research environment, and student-focused approach.  
 - Gave a tour of the campus offerings and available facilities.
-
+####  **Dr. Sehajpal Singh**
+  He gave us detailed information about the college in a very clear and engaging manner.  
+He expressed that we are fortunate to be taking admission during the 70th anniversary of the college.  
+He congratulated all of us on becoming a part of this historic moment.
 
 
 ####  **Mrs. Harpreet Kaur Garewal**  
 - HOD of Applied Sciences  
 - Encouraged students to approach their first year as a foundation-building phase  
 - Spoke on bridging the gap between school and engineering academics
+
+- 
 - #### **Mr. Maheshinder Singh Garewal**
 - He delivered a very inspiring speech where he talked about the NSET Trust of GNDEC College.  
 He shared personal life examples to explain how to build confidence.  
