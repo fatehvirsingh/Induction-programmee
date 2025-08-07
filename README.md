@@ -60,3 +60,13 @@ We had our **P2P class**, where we were introduced to the **basics of C++ coding
 
 **`2:30 PM - 3:30 PM`**  
 Our **Physics class** was conducted by **Prof. Jaspreet Singh**. He gave us an overview of the **Physics syllabus**, shared important details about the **exam pattern and marking scheme**, and taught us some **basic Physics concepts
+## Day 5 – Induction Programme Summary
+
+### 1:30 PM – 2:30 PM  
+We had our **P2P (Peer-to-Peer)** session during this time. In this session, we had a **C++ revision class**, where we learned about some **basic functions and concepts** that would help us get started with coding. This class was extremely helpful in building a strong foundation for programming.
+
+### 2:30 PM – 4:00 PM  
+During this session, we attended a very informative and health-focused talk by **Shaffy Makkar**.  
+She educated us about the importance of **millets** and how they can **prevent various diseases** and contribute to a **healthy lifestyle**.  
+She also highlighted the **negative effects of junk food** on digestion and overall health.  
+Later, she explained the **specific benefits of different types of millets** and shared tips on **how to cook them properly** so that they are both **nutritious and tasty**.
