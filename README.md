@@ -88,3 +88,20 @@ During this session, we attended a very informative and health-focused talk by *
 She educated us about the importance of **millets** and how they can **prevent various diseases** and contribute to a **healthy lifestyle**.  
 She also highlighted the **negative effects of junk food** on digestion and overall health.  
 Later, she explained the **specific benefits of different types of millets** and shared tips on **how to cook them properly** so that they are both **nutritious and tasty**.
+
+## **DAY 6 (Date)**
+
+**9:30 AM to 10:00 AM**  
+*Dr. Parminder Singh* informed us about the **college facilities**, **hostel details**, and **various clubs** available on campus. He also guided us on **whom to approach in case of any problem** and shared information about **scholarships**.
+
+**10:00 AM to 11:00 AM**  
+*Mr. Manpreet Singh* (Fitness Coach) explained how we can **stay physically fit** and **avoid drugs**. He provided insights on **steroids**, including who they are meant for. He also engaged students in activities such as **push-ups** and gave valuable tips about **fitness**.
+
+**11:00 AM to 12:30 PM**  
+*Brigadier P.S. Cheema* shared **valuable life lessons**, explaining how to bring **discipline** into our lives. He also gave us detailed information about the **NCC**.
+
+**1:30 PM to 2:30 PM**  
+*Mr. Gautam Sir* introduced us to the field of **motorsports**, sharing interesting facts and opportunities in this area.
+
+**2:30 PM to 3:30 PM**  
+We attended an **English Communication** class where the teacher conducted **introductions** to help improve our speaking confidence.
