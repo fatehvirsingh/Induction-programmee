@@ -105,3 +105,17 @@ Later, she explained the **specific benefits of different types of millets** and
 
 **2:30 PM to 3:30 PM**  
 We attended an **English Communication** class where the teacher conducted **introductions** to help improve our speaking confidence.
+## **DAY 7 (Date)**
+
+**9:30 AM to 10:30 AM**  
+We had our **Mathematics** class where we learned about **basic maths concepts** and were informed about the **syllabus**.
+
+**10:30 AM to 11:30 AM**  
+We attended a **Physics** class in which the teacher revised some **basic topics** with us.
+
+**12:30 PM to 2:30 PM**  
+*Mr. Lakhwinder Singh Sir* introduced us to **CML** and explained how it helps in our **overall development**, boosts our **confidence**, and supports our **personal growth**.  
+He also informed us about **NPTEL**, explaining how we can learn from **IIT professors for free** and enhance our skills.
+
+**2:30 PM to 3:30 PM**  
+We listened to **Kirtan** performed by the **NSS volunteers**, followed by listening to different **Raags**. Afterwards, the **NSS volunteers** and *Mr. Jasvir Singh Garewal* (Head of NSS) explained the concept of **NSS** and how it helps people. They also engaged students in **
