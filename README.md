@@ -44,6 +44,21 @@ After the speech, he was honored by the college as a token of appreciation.
 
 #### **From 1:30 PM to 3:30 PM**
 we were given a tour of the Electrical Engineering Department. During this time, we visited various laboratories and were introduced to the faculty members. It was an insightful session that helped us understand the department's facilities and interact with the teachers.
+DAY2 (01-08-2025)
+9:00 AM to 11:00AM - Universal Human Values
+The day began with an expert lecture by Dr. Priya Darshni Madam. In which she gave us deep insights of Basic human aspirations, Evaluation of our efforts, Planning for a fulfilling life, Multiple ways to fullfill aspirations, Common aspirations and concerns in our personal and professional lives.
+
+11:00 AM to 12:30 PM -
+I attended another enriching session conducted by Dr. Arvind Dhingra (Director of STEP and Incharge of TAC). He asked for 7 boys and 7 girls to come up on stage whom he asked to perform a team strategy game.
+
+12:30 PM to 1:30 PM -
+We had a lunch break.
+
+1:30 PM to 2:30 PM -
+We appeared for the English Proficiency Test in our assigned rooms. The test helped assess our basic communication and comprehension skills.
+
+2:30 PM to 3:30 PM -
+We had the Maths Proficiency Test, which checked our foundational mathematical abilities.
 ### Day 4 - Induction Programme
 
 **`9:00 AM - 10:00 AM`**  
