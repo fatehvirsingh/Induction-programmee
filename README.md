@@ -48,7 +48,19 @@ we were given a tour of the Electrical Engineering Department. During this time,
 ## **DAY 2 (01-08-2025)**
 
 **9:00 AM to 11:00 AM**  
-The day began with
+The day began with an expert lecture by *Dr. Priya Darshni Madam*, where she gave us deep insights into **Basic human aspirations**, **Evaluation of our efforts**, **Planning for a fulfilling life**, **Multiple ways to fulfill aspirations**, and **Common aspirations and concerns** in our personal and professional lives.
+
+**11:00 AM to 12:30 PM**  
+I attended another enriching session conducted by *Dr. Arvind Dhingra* (Director of STEP and Incharge of TAC). He invited **7 boys** and **7 girls** on stage to participate in a **team strategy game**.
+
+**12:30 PM to 1:30 PM**  
+Lunch break.
+
+**1:30 PM to 2:30 PM**  
+We appeared for the **English Proficiency Test** in our assigned rooms. The test helped assess our **basic communication and comprehension skills**.
+
+**2:30 PM to 3:30 PM**  
+We had the **Maths Proficiency Test**, which checked our **foundational mathematical abilities**.
 
 ### Day 4 - Induction Programme
 
