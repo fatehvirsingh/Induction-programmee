@@ -62,6 +62,33 @@ We appeared for the **English Proficiency Test** in our assigned rooms. The test
 **2:30 PM to 3:30 PM**  
 We had the **Maths Proficiency Test**, which checked our **foundational mathematical abilities**.
 
+📅 Day 3
+
+1️⃣ Session by Causmic Club
+Organized by: Causmic Club, GNDEC
+Highlights:
+	•	Introduced students to the activities and vision of the Causmic Club.
+	•	Encouraged creativity, innovation, and teamwork among students.
+	•	Provided insights into upcoming club events and opportunities for participation.
+	•	Shared stories of successful student-led projects.
+
+2️⃣ Lecture on Conduct of Examinations
+Speaker: Dr. Randhir Singh
+Designation: Faculty, GNDEC
+Highlights:
+	•	Explained the rules, guidelines, and ethics related to examinations at GNDEC.
+	•	Discussed academic integrity and the importance of honesty during exams.
+	•	Offered tips on effective preparation and time management.
+	•	Clarified common doubts about examination procedures.
+
+3️⃣ Second Lecture on Universal Human Values
+Speaker: Dr. Priya Darshni
+Designation: Faculty, Universal Human Values Expert
+Highlights:
+	•	Continued from the first lecture, diving deeper into human values.
+	•	Discussed how values influence decision-making in professional life.
+	•	Shared real-world scenarios where values play a critical role.
+	•	Motivated students to practice empathy, respect, and ethical behavior.
 ### Day 4 - Induction Programme
 
 **`9:00 AM - 10:00 AM`**  
